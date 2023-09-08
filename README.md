@@ -1,1 +1,1 @@
-fuddu kam janta de
+fd
